@@ -2,4 +2,4 @@
 
 Contact me to get my services
 
-<img src="https://i.imgur.com/oo7x86O.png">
+<img src="https://i.imgur.com/nVxSM9i.png">
