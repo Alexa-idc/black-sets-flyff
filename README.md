@@ -1,4 +1,4 @@
-<h5 align="center">**Black Sets for Flyff**</h5>
+<h5 align="center">Black Sets for Flyff</h5>
 
 Contact me to get my services
 
